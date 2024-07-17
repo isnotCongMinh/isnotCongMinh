@@ -2,7 +2,7 @@
 - 👀 I’m interested in game, cosmos, IT, AI
 - 🌱 I’m currently learning about English, code and Python
 - 💞️ I’m looking to collaborate on a secret person, who takes my heart at first sight
-- 📫 How to reach me ...
+- 📫 Contact: in my gmail
 - 💪 Goals: doing exercise, working out and learning new sth about IT
 - 😕 Should I say I love her? It's so difficult for me because I haven't talked to her much:<<
 
