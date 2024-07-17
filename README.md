@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @isnotCongMinh
 - 👀 I’m interested in game, cosmos, IT, AI
-- 🌱 I’m currently learning about code and python
+- 🌱 I’m currently learning about English, code and Python
 - 💞️ I’m looking to collaborate on a secret person, who takes my heart at first sight
 - 📫 How to reach me ...
 - 💪 Goals: doing exercise, working out and learning new sth about IT
